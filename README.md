@@ -12,7 +12,7 @@ ILoveFleetwaySm
 
 
 
-<im width="100" alt="Screenshot 2022-01-05 at 18 44 14" src"![{D6DE02C0-58D5-468E-8E58-743D0E64C1AF}](https://github.com/user-attachments/assets/2c9fa334-6cbb-46c2-b261-2bdcaec85a5a)">
+<im width="100" alt="Screenshot src"![{D6DE02C0-58D5-468E-8E58-743D0E64C1AF}](https://github.com/user-attachments/assets/2c9fa334-6cbb-46c2-b261-2bdcaec85a5a)">
                                                                                                     _____  ______          _        ______ _      ______ ______ _________  
 CHAOTICENTITY                                                         
 
