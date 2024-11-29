@@ -12,4 +12,5 @@ ILoveFleetwaySm
 
                                                                                                     _____  ______          _        ______ _      ______ ______ _________  
 CHAOTICENTITY                                                         
-<img src="6167cbf56eb9a76de1e94927f488beb7](https://github.com/user-attachments/assets/5a679eec-0386-418f-adaa-d9e084ccf0f7" widtg="200"/>
+![image]![6167cbf56eb9a76de1e94927f488beb7](https://github.com/user-attachments/assets/5a679eec-0386-418f-adaa-d9e084ccf0f7)
+
